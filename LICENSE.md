@@ -1,4 +1,4 @@
-# 
+# secure Plugin for Quicken for PC | Quicken for Windows - cloud-sync and multi-currency-support is the best Quicken for PC | Quicken for Windows plugin, featuring cloud-sync and
 
 
 
